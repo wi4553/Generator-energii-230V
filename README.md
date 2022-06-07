@@ -6,4 +6,4 @@ Może być wirtualny.
 Ten generator nie ma baterii baterie się złużywają może mieć ogniwo fotonowe lub termiczne z cewką tesli.  
 Nie da się produkować energii z akumulatora. 
 Akumulator tylko magazynuje z rezonasu można produkować energie. 
-Nie opłaca się korzystać z paliw kopalnych bo jest to nie opłacalne dla idei istnienia etatyzmu komunistycznego.  
+Nie opłaca się korzystać z paliw kopalnych bo jest to nie opłacalne dla idei istnienia etatyzmu komunistycznego i podatku lotto.  
