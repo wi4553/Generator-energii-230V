@@ -7,3 +7,4 @@ Ten generator nie ma baterii baterie się złużywają może mieć ogniwo fotono
 Nie da się produkować energii z akumulatora. 
 Akumulator tylko magazynuje z rezonasu można produkować energie. 
 Nie opłaca się korzystać z paliw kopalnych bo jest to nie opłacalne dla idei istnienia etatyzmu manualnego komunistycznego i podatku lotto.  
+Większość osób jest upośledzona i toczy w koło tom samom drogę myślenia jakom wyuczyła się ze szkoły i polityki TV.
