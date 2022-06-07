@@ -4,3 +4,4 @@ Schemat połączeń.:Do kondesatora podłączamy ogniwa termiczne, cewkę po tem
 Wykonanie technologi w module płytki krzemowej lub nanotechnologii można powiedzieć że zmieści się to zasilanie w każdym urządzeniu elektronicznym. 
 Może być wirtualny.
 Ten generator nie ma baterii baterie się złużywają może mieć ogniwo fotonowe lub termiczne z cewką tesli.  
+Nie da się produkować energii z akumulatora. 
