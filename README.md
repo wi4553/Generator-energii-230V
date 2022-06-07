@@ -11,3 +11,4 @@ Większość osób jest upośledzona i toczy w koło tom samom drogę myślenia 
 Jest mało czasu inaczej grozi nam etatymzm i niewola ja wam ratuje skurę nie lubię ministerstwa sportu i rekreacji jak i naszych polityków co ciągle kłamią w szkołach aby utrzymać ciemnotę. Tak będziecie wypoczywać w automatyce dzięki komputereom i rozwiązaniom inteligentnego domu a uprawiać sport można w domu czy mieszkaniu.  
 Tak można zrobić powerwell.
 Można wirtualnie drukować elektrony i fotony a potem konwertować je na energie elektryczną. 
+Urządzenia smart home mogą jak komputer przywracać zasilanie z bateri laptopa do oszczędzacza jak zabraknie energii w sieci Wi-Fi.
