@@ -13,3 +13,4 @@ Tak można zrobić powerwell.
 Można wirtualnie drukować elektrony i fotony a potem konwertować je na energie elektryczną. 
 Urządzenia smart home mogą jak komputer przywracać zasilanie z bateri laptopa do oszczędzacza jak zabraknie energii w sieci Wi-Fi.
 Robię to po to aby 2 raz mnie nie wzywać aby było w internecie. 
+Etatyzm i kolonializm górniczy jest głupi jak mit o Prometeuszu czy sportowcach i grekach czy rzymianach włochach jak ich komunizm z krakowa w celu kopania dziur niż wykopania podziemnych miast cyfrowo teleportacją kwantową na całym świecie w kilka minut Harrp.   
