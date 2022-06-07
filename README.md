@@ -5,3 +5,4 @@ Wykonanie technologi w module płytki krzemowej lub nanotechnologii można powie
 Może być wirtualny.
 Ten generator nie ma baterii baterie się złużywają może mieć ogniwo fotonowe lub termiczne z cewką tesli.  
 Nie da się produkować energii z akumulatora. 
+Akumulator tylko magazynuje z rezonasu można produkować energie. 
