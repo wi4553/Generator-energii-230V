@@ -14,3 +14,4 @@ Można wirtualnie drukować elektrony i fotony a potem konwertować je na energi
 Urządzenia smart home mogą jak komputer przywracać zasilanie z bateri laptopa do oszczędzacza jak zabraknie energii w sieci Wi-Fi.
 Robię to po to aby 2 raz mnie nie wzywać aby było w internecie. 
 Etatyzm i kolonializm górniczy jest głupi jak mit o Prometeuszu czy sportowcach i grekach czy rzymianach włochach jak ich komunizm z krakowa w celu kopania dziur niż wykopania podziemnych miast cyfrowo teleportacją kwantową na całym świecie w kilka minut Harrp.   
+Skoro ja mam choroby psychiczne i autyzm to populacja ma obniżone IQ i EQ wraz tym że mają dauna i trzymają sie stale 100 IQ poziomu nie idą dale w skali rozwoju IQ czy EQ. 
